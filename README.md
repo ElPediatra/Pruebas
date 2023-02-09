@@ -1,5 +1,5 @@
 # Pruebas
-Things I watch online and try myself
+Things I watch online and try myself.
 Also some freestyle things
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⣀⡤⠤⠤⠤⢤⣀⠀⠀⠀⠀⠀⠀⣀⡠⠤⠄⠠⠤⢄⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
